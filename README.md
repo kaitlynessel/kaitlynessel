@@ -55,5 +55,5 @@ skill at the systems that need it most. (And it's so exciting!)
 
 ## 📫 Let's Connect
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/kaityessel/)
+- 💼 [LinkedIn](https://www.linkedin.com/in/kaitlynessel/)
 - 📍 Asheville, North Carolina
